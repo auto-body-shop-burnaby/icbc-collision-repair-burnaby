@@ -18,8 +18,8 @@ Modern vehicles often require model-specific parts and manufacturer-approved rep
 
 Drivers in Burnaby have access to multiple ICBC-approved collision repair facilities. Choosing a repair shop with strong documentation practices, clear communication, and experience working with ICBC can help ensure repairs are completed safely and correctly.
 
-One example of an ICBC collision repair shop in Burnaby is **Mint Auto Body & Glass ICBC**:  
-https://mintautobody.ca
+One example of an ICBC collision repair shop in Burnaby is **[Mint Auto Body & Glass ICBC](https://mintautobody.ca)** :  
+
 
 ---
 
